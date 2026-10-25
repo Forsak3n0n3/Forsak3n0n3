@@ -5,7 +5,7 @@
  👯 I’m looking to collaborate on my verison of xboxlive 
  🤔 I’m looking for help with on my verison of xboxlive
  💬 Ask me about my verison of xboxlive
- 📫 How to reach me: discord:blurstreetracer
+ 📫 How to reach me: discord:
  😄 Pronouns: he/him
  ⚡ Fun fact: im tryna make the xbox360 fully work again
 
